@@ -1,4 +1,4 @@
-# GenderAndLeadership
+# Gender and Leadership
 
 ## How the emotions affect the who will be become a leader? 🤔
 
